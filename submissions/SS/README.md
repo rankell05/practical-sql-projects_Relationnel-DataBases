@@ -1,4 +1,4 @@
-# 📁 Submissions - SS Specialty (Systems Science)
+# 📁 Submissions - SS Specialty (Cyber Security)
 
 ## students
 
